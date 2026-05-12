@@ -1,4 +1,4 @@
-#  
+#  brookhaven rp stealth Script offers the most advanced brookhaven rp Script, with auto-heal and auto-collect. Perfect for dominating any match.
 
 
 
